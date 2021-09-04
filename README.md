@@ -1,1 +1,1 @@
-# linsky1018.github.io/xiaoke
+# linsky1018.github.io
